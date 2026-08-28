@@ -4,6 +4,6 @@ Je suis <a href="https://sofia-zguiri.netlify.app" style="color: #3ea6ff; text-d
 
 En dehors du code, on me trouve souvent avec de la pop dans les oreilles ou devant un film Marvel. J'aime autant un bon plot twist qu'un bug bien résolu. 😁
 
-**Discutons !**
+**Let's connect!**
 
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-0A66C2?style=for-the-badge&logo=linkedin&logoColor=white)](https://www.linkedin.com/in/sofia-zguiri/)
